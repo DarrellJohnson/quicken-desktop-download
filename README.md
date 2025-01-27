@@ -1,4 +1,5 @@
 # Quicken Desktop Download: How to Get Started
+![Quicken Desktop Download](https://github.com/user-attachments/assets/74e3cc76-206d-4458-8920-308c7f69063c)
 
 ## Quicken Desktop Download for Windows: Features and Capabilities
 
